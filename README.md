@@ -1,5 +1,7 @@
 # 💫 About Me:
 Experienced Full Stack Software Engineer building digital solutions with passion and precision. 💻🚀<br><br>🔹 Crafting seamless user experiences from front-end to back-end<br>🔹 Transforming complex ideas into elegant, efficient code<br>🔹 Collaborating with cross-functional teams to deliver impactful results<br>🔹 Embracing the latest technologies and staying ahead of the curve<br>🔹 Solving challenges with creativity, tenacity, and attention to detail<br><br>Join me on this exciting journey as we shape the digital world together. Let's turn ideas into reality and create exceptional software that makes a difference. Connect with me and explore the power of innovation! ✨💡<br><br>#FullStackDeveloper #PassionateCoder #DigitalCraftsmanship
+Wattsapp Me: +2348167974381
+Email: danielnyong4faith@gmail.com
 
 
 ## 🌐 Socials:
